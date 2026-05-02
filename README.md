@@ -1,2 +1,0 @@
-# Hedes
-Trading a.i
